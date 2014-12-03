@@ -6,4 +6,4 @@ sample
 do re mi fa
 
 
-genelyn na mataba
+genelyn na mataba pero maganda
